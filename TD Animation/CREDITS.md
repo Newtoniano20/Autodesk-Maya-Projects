@@ -1,0 +1,2 @@
+The Car used for this project was designed and published by manoanim in https://manoanim.gumroad.com/l/VUEPC
+All credits about the car goes to him and his work, I only credit for the animation and secenery in this animation, not the car. 
